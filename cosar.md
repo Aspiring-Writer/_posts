@@ -17,16 +17,12 @@ During the centuries, Azura has only longed for one thing---to avenge the death 
 
 ## Places
 
-{% note info %}
-
 ### Realms vs Courts
 
 Realms are like universes, each realm has multiple planets that share similar characteristics. Courts are the groups of fae that rule over a specific realm. There may be multiple courts in one realm, but they generally only belong to one realm.
 
 Realm = universe \
 Court = government
-
-{% endnote %}
 
 - the Day Realm
   - at least one sun and experienced periods of days and nights

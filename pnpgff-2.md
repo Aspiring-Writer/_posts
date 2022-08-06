@@ -122,10 +122,3 @@ Reila nodded.
 The three headed out and into their vehicles. Reila started her truck and followed Jared out.
 
 That girl almost didn't make it out alive, not without help from an unexpected place.
-
-{% note default %}
-
-- Previous: {% post_link pnpgff-1 %}
-- Next: {% post_link pnpgff-3 %}
-
-{% endnote %}

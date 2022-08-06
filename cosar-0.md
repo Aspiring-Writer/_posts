@@ -53,10 +53,3 @@ A flash of blue. Screams. Complete silence.
 *I will make them pay.*
 
 *HE will pay.*
-
-{% note default %}
-
-- Previous: {% post_link cosar %}
-- Next: {% post_link cosar-1 %}
-
-{% endnote %}
