@@ -18,7 +18,7 @@ Rothilion scanned through the letter, "When was this delivered?"
 
 "Just now, sir, I rushed it to you immediately."
 
-"The Shadow Court thinks we need assistance with these lessors." Rothilion growled.
+"The Shadow Court thinks we need assistance with these lessors," Rothilion growled.
 
 "Sir?"
 
@@ -36,7 +36,7 @@ The soldier bowed, "Yes, sir."
 
 ---
 
-From her viewpoint in the clouds, Azura could see Carlhaven in all its glory, without being spotted by the mighty towers. The multi-level fortress had some of the strongest reinforced walls she had ever seen. It had grown much in the last seven centuries, when it was merely a village. She had watched the first walls rise up, and even helped with development. Now, that small village had grown into a thriving stronghold that rivaled those older than it. Nixarza sighed, she could not, would not, destroy those walls.
+From her viewpoint in the clouds, Azura could see Carlhaven in all its glory, without being spotted by the mighty towers. The multi-level fortress had some of the strongest reinforced walls she had ever seen. It had grown much in the last seven centuries than when it was merely a village. She had watched the first walls rise up, and even helped with development. Now, that small village had grown into a thriving stronghold that rivaled those older than it. Nixarza sighed, she could not, would not, destroy those walls.
 
 A slight tug called her back down to Válgr's side. She had barely landed before he began questioning her. "How thick are the walls?"
 
@@ -70,11 +70,11 @@ Válgr laughed, "Who's going to kill me?"
 
 ---
 
-Faelynn Farwynn, High Prince of the Shadow Court, and his second, Folluin Zingolor, prepared their small army of about four hundred elite warriors. All were dressed in the traditional grays of the Shadow Court and equipped with twin ebony blades. Those with higher ranks, like Faelyn and Folluin also bore scythes crafted with the finest metals. Together, they waited to open the ley lines and join the battle.
+Faelynn Farwynn, High Prince of the Shadow Court, and his second, Folluin Zingolor, prepared their small army of about four hundred elite warriors. All were dressed in the traditional grays of the Shadow Court and equipped with twin ebony blades. Those with higher ranks, like Faelyn and Folluin, also bore scythes crafted with the finest metals. Together, they waited to open the ley lines and join the battle.
 
 "When will the ley lines be opened?" Folluin asked his Prince.
 
-"When the walls of Carlhaven are breached." Faelynn replied.
+"When the walls of Carlhaven are breached," Faelynn replied.
 
 "You expect Rothilion to fail?"
 
@@ -96,7 +96,7 @@ Folluin feigned pain, "You have hurt me, my prince. She is truly interested in m
 
 Faelynn made a show of examing his second, "Perhaps... it's hard to say."
 
-Both faes laughed, "How cruel of you, Prince." Folluin chuckled.
+Both fae laughed, "How cruel of you, Prince." Folluin chuckled.
 
 Faelynn just laughed. "But, regarding the matters at hand."
 

@@ -4,7 +4,7 @@ date: 2021-04-06
 categories: [books, past nightmares. present ghosts. future fears.]
 prev_post: pnpgff-2
 ---
-Reila briefly glanced around the living room. The Williams' had a small, cozy country house with a slightly modern look. Nothing seemed out of place. Greg Williams remained near the hall, looking sober, quiet, and a little hopeful. Jared and Robert rumaged around a bit but mostly stayed out of her way.
+Reila briefly glanced around the living room. The Williams' had a small, cozy country house with a slightly modern look. Nothing seemed out of place. Greg Williams remained near the hall, looking sober, quiet, and a little hopeful. Jared and Robert rummaged around a bit but mostly stayed out of her way.
 
 "Well? Find anything yet?"
 
@@ -16,7 +16,7 @@ The room all seemed a bit deja vu, an unwelcome feeling. Reila clenched her fist
 
 She waved her hand at him without turning to meet his gaze. At least she wasn't alone, it made things easier.
 
-There was nothing amiss in the living room so she moved on to the kitchen. The kitchen followed the style of the living room; brown mahogony countertops greeted her along with a mahogany sink and refrigerator. It reminded her of her own kitchen, just a little bit less mahogany. Just like the living room, the kitchen was nearly spotless. No dishes lined the counter, the stove silently shined with pride, and the appliances were flushed against the walls or centered on their respective countertops. Reila noticied Jared enter the room and smiled at his quiet footsteps. She remembered the first time she had examined a crime scene with him, he had been so loud and she had complained that it messed with her concentration. Ever since then he was careful not to be too loud, until she had gotten on him for sneaking up on her. Now, Jared spoke little, didn't stomp around, and made sure she saw him before he walked up to her. She wondered if he had figured out what she was teaching him about stealth and if anyone else noticied the change as well.
+There was nothing amiss in the living room so she moved on to the kitchen. The kitchen followed the style of the living room; brown mahogany countertops greeted her along with a mahogany sink and refrigerator. It reminded her of her own kitchen, just a little bit less mahogany. Just like the living room, the kitchen was nearly spotless. No dishes lined the counter, the stove silently shined with pride, and the appliances were flushed against the walls or centered on their respective countertops. Reila noticed Jared enter the room and smiled at his quiet footsteps. She remembered the first time she had examined a crime scene with him, he had been so loud and she had complained that it messed with her concentration. Ever since then he was careful not to be too loud until she had gotten on him for sneaking up on her. Now, Jared spoke little, didn't stomp around, and made sure she saw him before he walked up to her. She wondered if he had figured out what she was teaching him about stealth and if anyone else noticed the change as well.
 
 _They're very clean,_ she signed to him.
 
@@ -34,19 +34,19 @@ _Probably._
 
 "Did you find anything interesting? Besides the cleanliness."
 
-She smirked, but shook her head.
+She smirked but shook her head.
 
 The two began to exit the room when the calendar hanging on the fridge caught her eye. It was the only thing in the room that looked well-used with appointments and events written all over it. What held her attention was a small drawing on New Year's Eve. Reila walked closer. It looked almost like a little lamb with its legs tied. Under the lamb was what looked like a bonfire.
 
 _Get Greg,_ she signed to Jared.
 
-Another memory creeped out of its corner and into the forefront of her mind&mdash;a bonfire sacrifice to start the New Year off with a bang. She shook off the nightmare. She needed more evidence before associating that memory with Cassidy's disappearence. Plus, it was only the 24th; they had time.
+Another memory creeped out of its corner and into the forefront of her mind, a bonfire sacrifice to start the New Year off with a bang. She shook off the nightmare. She needed more evidence before associating that memory with Cassidy's disappearance. Plus, it was only the 24th; they had time.
 
 Jared returned with Greg and pointed out the drawing, "What's that?" He asked.
 
 Greg shrugged, "Sometimes Cassidy draws things on the calendar instead of writing them out."
 
-"And that's suppossed to be?..."
+"And that's supposed to be?..."
 
 _Tell me about the Followers of the Cougar, Cassidy wasn't involved with them?_
 
@@ -58,7 +58,7 @@ _What about their leader, he was flirting with her, right?_
 
 "Garth Lawrence, some blond egomaniac who doesn't like being told no and thinks he can have any woman he wants, including Cassidy."
 
-Reila froze. Garth Lawrence, the Cougar. She knew him, and hated him. He was here? In Boise?
+Reila froze. Garth Lawrence, the Cougar. She knew him and hated him. He was here? In Boise?
 
 _I need to see him._
 
@@ -78,7 +78,7 @@ She stopped and met Jared's gaze.
 
 "What is it about Lawrence that makes you scared one second and angry the next? Who is he?"
 
-_He's an egomaniac, like Williams said. He's also the Cougar, hence his group's name._
+_He's an egomaniac like Williams said. He's also the Cougar, hence his group's name._
 
 "And?"
 
@@ -90,7 +90,7 @@ _It might explain why Cassidy is missing._
 
 "He's a kidnapper?"
 
-Reila got into her truck, _He's an egomaniac, a narcissist, and has a cult that preforms holiday rituals. You figure out the rest._
+Reila got into her truck, _He's an egomaniac, a narcissist, and has a cult that performs holiday rituals. You figure out the rest._
 
 "Holiday rituals?"
 
@@ -114,7 +114,7 @@ Jared watched Reila drive away. This was getting interesting and confusing at th
 
 "Well, don't know who that Lawrence guy is but an egomaniac is usually narcissistic and cults perform rituals. Some rituals could have kidnapping involved, I've heard of that before."
 
-"So let me see if I got this right, Garth Lawrence is a narcissistic egomaniac who leads a cult that may have kidnapped Cassidy Williams for one of it's holiday rituals?"
+"So let me see if I got this right, Garth Lawrence is a narcissistic egomaniac who leads a cult that may have kidnapped Cassidy Williams for one of its holiday rituals?"
 
 "That's what she said?"
 
@@ -122,4 +122,4 @@ Jared watched Reila drive away. This was getting interesting and confusing at th
 
 "Great."
 
-"My sentements exactly."
+"My sentiments exactly."

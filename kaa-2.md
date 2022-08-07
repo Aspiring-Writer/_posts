@@ -1,5 +1,5 @@
 ---
-title: KaA ~ Ch 2. Kidnapped By A Psycopath
+title: KaA ~ Ch 2. Kidnapped By A Psychopath
 date: 2020-11-22T01:02:32.414Z
 categories: [books, kidnapped and afraid]
 prev_post: kaa-1
@@ -17,7 +17,7 @@ I scanned the room. Nothing but darkness greeted me. I rubbed my eyes. *Where am
 
 I groaned and rolled over onto my stomach. *This bed is so soft and fluffy, like a cloud. Wait, what?* I touched the sheets, *This isn't my bed! Oh, crap, who's bed am I in and why? No, no, no...*
 
-I took a deep breath, *Breathe Marissa, panicking never did you any good. Breathe, relax, think.*
+I took a deep breath, *Breathe Marissa, panicking never did you any good. Breathe, relax, and think.*
 
 I tried to remember what had happened last night but everything was foggy and my head was killing me.
 
@@ -49,7 +49,7 @@ I blinked. I could barely make out the outline of the man who stood a few yards 
 
 He chuckled, "So oblivious and yet so unafraid."
 
-Yeah, he's crazy and maybe even dangerous. *Carlos was like that.* No. I wasn't going to think about him, I needed to focus on here and now.
+Yeah, he's crazy and maybe even dangerous. *Carlos was like that.* No. I wasn't going to think about him, I needed to focus on the here and now.
 
 "What exactly am I oblivious to?"
 
@@ -79,11 +79,11 @@ I tugged on my grasped hand, "I think I can walk on my own now, thank you."
 
 He turned and I had a glimpse of a hard-toned face and yellow eyes, "If you wish."
 
-He let go of my hand and continued walking. I slowed down a bit and examined him. He was almost six and a half feet tall with an equally proportioned body. It was hard to tell but I had a feeling he was also very muscular. He reminded me of Carlos' brother. I gritted my teeth. Why did I keep thinking about him! I paced my breathing and my steps. I knew that if I slowed down just a little and shorten my strides, the man walking in front of me wouldn't notice I was lagging behind him. I used to do it all the time to Carlos. I growled under my breath. Of all the days that arrogant... thug had to plague my thoughts, it had to be today. I had worked so hard to forget that time in my life! I again focused on my breathing and closely watched the man in front of me. The gap between us was slowly growling and I started counting the seconds before I switched directions.
+He let go of my hand and continued walking. I slowed down a bit and examined him. He was almost six and a half feet tall with an equally proportioned body. It was hard to tell but I had a feeling he was also very muscular. He reminded me of Carlos' brother. I gritted my teeth. Why did I keep thinking about him? I paced my breathing and my steps. I knew that if I slowed down just a little and shorten my strides, the man walking in front of me wouldn't notice I was lagging behind him. I used to do it all the time to Carlos. I growled under my breath. Of all the days that arrogant... thug had to plague my thoughts, it had to be today. I had worked so hard to forget that time in my life! I again focused on my breathing and closely watched the man in front of me. The gap between us was slowly growling and I started counting the seconds before I switched directions.
 
 One more minute passed and I started quieting in my footsteps. Mr. Cryptic was now nearly 1000 feet in front of me. I held my breath as he rounded a corner. Was he really that oblivious? I quickly turned around and hurried back down the hallway we came from. We had passed many doors and I quickly choose one to sneak into. I held my breath as I turned a knob. The door opened soundlessly and I uttered another prayer of thanks. I slipped into the room and shut the door behind me.
 
-The room was a large room full of beautiful, large-scale artwork. I stared in awe at a family picture that loomed many feet above me. I studied each beautifully-sculpted face, wondering who each person was and the story they had. It was a family of six---a father, mother, three sons, and a daughter. Each had long hair past their shoulders, the men wore it in one long braid while the two women had many braids. The father's hair looked white while his wife's seemed auburn. The children's hair seemed auburn. The children's hair seemed to be auburn as well if not a little lighter. It was hard to tell with only the moonlight illuminating the painting. I stepped closer and touched the handcrafted frame.
+The room was a large room full of beautiful, large-scale artwork. I stared in awe at a family picture that loomed many feet above me. I studied each beautifully-sculpted face, wondering who each person was and the story they had. It was a family of six---a father, a mother, three sons, and a daughter. Each had long hair past their shoulders, the men wore it in one long braid while the two women had many braids. The father's hair looked white while his wife's seemed auburn. The children's hair seemed auburn. The children's hair seemed to be auburn as well if not a little lighter. It was hard to tell with only the moonlight illuminating the painting. I stepped closer and touched the handcrafted frame.
 
 "Breathtaking, isn't it?"
 
@@ -125,7 +125,7 @@ I nearly stumbled over my feet and froze. "Wh-what?"
 
 I winced, "But, but, how did you know that?"
 
-His eyes glimmered and he continued down the hallway, tugging along. Confusion took control over my mind and the banging in my head increased.
+His eyes glimmered and he continued down the hallway, tugging along. Confusion took control of my mind and the banging in my head increased.
 
 What is happening? He broke into my home, God only knows how, and kidnapped me. Why? What does he want? Is he a psychopath? Did he... did he *touch* me? I started to panic. No, no, no, this couldn't be happening to me. Not again, please God, no.
 
@@ -171,6 +171,6 @@ He watched as she slowly stopped struggling and went limp in his arms. He sighed
 
 *They always fight, always. And they only hurt themselves.* He thought.
 
-He picked her up and continued walking down the hallway, *She'll awaken soon. When she does, I'll crame food and medicine down her throat.*
+He picked her up and continued walking down the hallway, *She'll awaken soon. When she does, I'll cram food and medicine down her throat.*
 
 *And then... then we'll play a little.*

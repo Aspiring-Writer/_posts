@@ -6,13 +6,13 @@ prev_post: kaa-3
 ---
 It took me about ten minutes before I got up and started trying the doors. All the ones that actually led somewhere were locked, and only three out of eight were unlocked―the doors to the bedroom, sitting room, and hallway. There were windows in the sitting room and the hallway, but those windows were barred with glass panels on the inside that could be opened to let air in. It was through those that I discovered it was nearly evening.
 <!-- more -->
-Frustrated was not the right word to describe me, right now; I was angry, utterly mad. This wasn't the first time I was in this predicament, but I had sure thought it wasn't going to happen again. Well, obviously, I was too dumb and naive on that matter. Of course, it was going to happen again! Eventually, and, give it some time, I would be right back where I started. This was starting to look like my destiny, and I wanted nothing more to rebel against it. Honestly, why me? What had I done? Maybe Death was angry because I got away? He was obviously enjoying the challenge.
+Frustrated was not the right word to describe me, right now; I was angry, utterly mad. This wasn't the first time I was in this predicament, but I had sure thought it wasn't going to happen again. Well, obviously, I was too dumb and naive on that matter. Of course, it was going to happen again! Eventually, and, give it some time, I would be right back where I started. This was starting to look like my destiny, and I wanted nothing more than to rebel against it. Honestly, why me? What had I done? Maybe Death was angry because I got away? He was obviously enjoying the challenge.
 
 It felt pathetic to be sitting in bed fuming, but I didn't have anything better to be doing. Every door I found was already thoroughly tried, and there wasn't much of a point in trying them all again. Eight doors, eight different locks, eight different avenues of escape. I wasn't even sure what part of the "castle" I was in, let alone how big it was. This was *perfect.* Perhaps I would be left to starve and Carlos would show up to be my golden savior and all that crap. *Good luck getting me back, jerk.*
 
 I watched as the sun kissed the horizon, I had always loved sunsets and sunrises. The sun said goodbye to one side of his life and hello to another, it was like he had two lives to juggle and had found a way to manage both. It reminded me of those years when I had first met Carlos; I had struggled to juggle my day-life and my night-life. Four months later, I stopped trying. Carlos had been like a force of nature, controlling everything within its grasp. He sought to control me too, but I was never his to have. That's why, when I got my chance, I fled and never looked back. He had been furious. Furious that I had escaped. Furious that I never returned. It didn't take long for the apology cards and the flowers to start showing up at my new apartment. I moved three times because of them. He always seemed to find me, though. I probably had a tracker somewhere, or he had access to some government files and equipment. I stopped caring after a while; I wasn't going back, and he had to deal with that. He needed to learn that I couldn't be bought back, or scared into his arms. Carlos was a force of nature, and I learned how to adapt and combat him. It still surprised me, how I escaped. I didn't think it would work, but a force of nature could become predictable, it seemed. And now, I would have to learn to adapt all over again to combat this new force, and whatever it brought with it.
 
-It wasn't until three hours later before I heard footsteps outside my bedroom. I still hadn't figured out what to tell Mr. Psycho, or what to do about him. So, I just stayed under the sheets when he walked in.
+It wasn't until three hours later that I heard footsteps outside my bedroom. I still hadn't figured out what to tell Mr. Psycho, or what to do about him. So, I just stayed under the sheets when he walked in.
 
 "Are you still alive?"
 
@@ -32,15 +32,15 @@ He chuckled, "I doubt it, you just need to reach past the confines of your munda
 
 "If their minds hadn't broken under all the pressure, yes."
 
-I grabbed a pillow and placed over my head. *This is crazy.* "Go away."
+I grabbed a pillow and placed it over my head. *This is crazy.* "Go away."
 
-"Do you not wish to have dinner? I will give you a tour afterwards."
+"Do you not wish to have dinner? I will give you a tour afterward."
 
 I sat up, "Seriously? Wouldn't you be afraid that I will escape?"
 
 He chuckled, "The only way you could escape is if I allowed it."
 
-*Sounds like Carlos. And he was wrong.*
+*That sounds like Carlos. And he was wrong.*
 
 "Who is Carlos? You mention him a lot."
 
@@ -52,9 +52,9 @@ He chuckled, "The only way you could escape is if I allowed it."
 
 "And yet, I am reading yours."
 
-I just stared at him. *I must finally be having a mental breakdown. It took a while, but I am now breaking under all the stress. Sad, really. After everything I've been through and this is what cracks me.*
+I just stared at him. *I must finally be having a mental breakdown. It took a while, but I am now breaking under all the stress. Sad, really. After everything that I've been through and this is what cracks me.*
 
-Mr Psycho rolled his eyes, "Get over it, Marissa. There are some things in life that fiction did not make up."
+Mr. Psycho rolled his eyes, "Get over it, Marissa. There are some things in life that fiction did not invent."
 
 "And mind-reading is one of them?"
 

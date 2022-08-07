@@ -37,9 +37,9 @@ I narrowed my eyes, "Are you toying with me?"
 
 He leaned back in his chair, "I don't know many people and I'm sure none of them carry the name 'Atwater.' Tell me, who are they?"
 
-"The only people who can't seem to leave me alone." I murmered. "So, wait." I turned my whole body to face him, "You didn't kidnap me for the Atwater's?"
+"The only people who can't seem to leave me alone," I murmured. "So, wait." I turned my whole body to face him, "You didn't kidnap me for the Atwater's?"
 
-He sighed, "Usually, when I kidnap people they don't react like this; they don't acuse me of working for someone else. I honestly don't know who you are talking about, I don't work for anyone, ever."
+He sighed, "Usually, when I kidnap people they don't react like this; they don't accuse me of working for someone else. I honestly don't know who you are talking about, I don't work for anyone, ever."
 
 His eyes were resolute and he never wavered. Was he speaking the truth? "You just kidnapped me for fun, then?"
 
@@ -47,13 +47,13 @@ His eyes were resolute and he never wavered. Was he speaking the truth? "You jus
 
 His abruptness caught me off guard. His eyes hadn't wavered then either. I slouched back in my chair, "Great."
 
-"You are.. special."
+"You are... special."
 
-"I get that a lot." I murmered. "I've also been called crazy and a freak."
+"I get that a lot," I murmured. "I've also been called crazy and a freak."
 
 "Why?"
 
-*Wouldn't you love to know.* "What *are* you planning to do with me? I have a job and other responsibilities, so if you could hurry it up I would appreciate it."
+*Wouldn't you love to know?* "What *are* you planning to do with me? I have a job and other responsibilities, so if you could hurry it up I would appreciate it."
 
 "What do most kidnappers plan to do with their victims?" He whispered.
 
@@ -83,15 +83,15 @@ I stared at him, "Sure. You just saw me on the street last night and decided to 
 
 He smiled, "Yes."
 
-I jumped up, "What is it with you psycopaths!" I snapped. "Do I have some sort of sign that says 'Perfect Toy' or something?! I just want to live a normal life! Why must you all keep trying to change that?" I slupped back down, "I must be cursed."
+I jumped up, "What is it with you psychopaths!" I snapped. "Do I have some sort of sign that says 'Perfect Toy' or something?! I just want to live a normal life! Why must you all keep trying to change that?" I slumped back down, "I must be cursed."
 
 Mr. Cryptic just blinked. "Have I broken you already? Mundanes can be so fragile."
 
-I glared at him, "Doubt it, I'm a freak, remember? Is that why psycopaths like me so much?"
+I glared at him, "Doubt it, I'm a freak, remember? Is that why psychopaths like me so much?"
 
-"You are the queerist thing."
+"You are the queerest thing."
 
-*You don't know the half of it.* "May I go now?"
+*You don't know half of it.* "May I go now?"
 
 "What?" He blinked.
 
@@ -107,7 +107,7 @@ I scoffed, "I doubt a mental institute will do much for me. I'm not insane and I
 
 "Because that is what they are, mundane."
 
-I rolled my eyes, "Fine. What's so special abou my aura? Does it scream 'kidnap her'?"
+I rolled my eyes, "Fine. What's so special about my aura? Does it scream 'kidnap her'?"
 
 "No," His eyes darkened, "it screams something far more intimate."
 
@@ -115,21 +115,21 @@ Now it was my turn to blink, "Intimate? Like what?"
 
 "Mine." He whispered,
 
-I swallowed and cleared my throat. "That would do it then, my aura must attract psycopaths by screaming 'I'm yours' to every idiot."
+I swallowed and cleared my throat. "That would do it then, my aura must attract psychopaths by screaming 'I'm yours' to every idiot."
 
-"I am neither a pyscopath nor an idiot."
+"I am neither a psychopath nor an idiot."
 
-"Than you are unlucky." I stood up, "May I *please* go home now?"
+"Then you're unlucky." I stood up, "May I *please* go home now?"
 
 "You are home."
 
 I glared at him, "My home."
 
-He stood. *Yup, he was definately six-and-a-half feet tall, just a foot over me.*
+He stood. *Yup, he was definitely six-and-a-half feet tall, just a foot over me.*
 
-"Let me make something clear to you, Marissa. You, are *mine*. And you are not leaving this castle until I figure out what, exactly, you are."
+"Let me make something clear to you, Marissa. You are *mine*. And you are not leaving this castle until I figure out what, exactly, you are."
 
-"Woah, woah, woah, Mr. Psycopath. I don't belong to anyone, ask around. And you can't keep me locked up here just to satisfy your own fantasies. I have my own life and I would like to get back to it."
+"Woah, Woah, Woah, Mr. Psycopath. I don't belong to anyone, ask around. And you can't keep me locked up here just to satisfy your own fantasies. I have my own life and I would like to get back to it."
 
 He growled, "I am the master of this castle, what I say goes."
 

@@ -78,7 +78,7 @@ Zamara grimaced, "They didn't ask, and I didn't offer."
 
 "I know, I know, it's just that―"
 
-"You want to avenge your parents, I get it; but the council have a right to know why you're obsessed with this guy, or group."
+"You want to avenge your parents, I get it, but the council has a right to know why you're obsessed with this guy, or group."
 
 "They might already know why."
 
@@ -98,21 +98,21 @@ Rajar rolled his eyes, "So are you."
 
 "I am not!" Zamara gasped.
 
-"Oh? When did you file for bankrupcy?"
+"Oh? When did you file for bankruptcy?"
 
 "Shush you, get back to work."
 
 Rajar chuckled, "You're something else."
 
-"I know," She smiled mischievously, "and you don't have know the half of it."
+"I know," She smiled mischievously, "and you don't even know the half of it."
 
 ---
 
-Dorian looked at his watch for the fifth time. *Where ia she?* Samantha was late, and she was going to make him late as well. He hated being late, absolutely hated it. The only time he liked being late was when he was making a statement by doing it. He sighed in frustration, *Of all the days she choose to be late...*
+Dorian looked at his watch for the fifth time. *Where is she?* Samantha was late, and she was going to make him late as well. He hated being late, absolutely hated it. The only time he liked being late was when he was making a statement by doing it. He sighed in frustration, *Of all the days she choose to be late...*
 
 "Patience isn't one of your strengths, Dorian."
 
-Dorian turned to his brother, and tried to hide his annoyance. "So? I have many more valuable ones."
+Dorian turned to his brother and tried to hide his annoyance. "So? I have many more valuable ones."
 
 Dragomir chuckled, "And what do you consider more valuable than patience?"
 
@@ -176,26 +176,22 @@ Dorian gritted his teeth, "At least I have women."
 
 "Is it possible that you've found some clothing you do like?"
 
-Dorian shot a look at his brother and walked back to the balcony. He watched the two birds taking a bath in the middle of the garden. Dorian never understood Dragomir's obsession with nature, dozens of flowers lined the twisting pathway through the acre of land. Groves of trees followed after them, apples and oranges, even grapes. It was beautiful, he couldn't deny that, but why Dragomir took it upon himself to personally oversee to their care still eluded Dorian.
+Dorian shot a look at his brother and walked back to the balcony. He watched the two birds taking a bath in the middle of the garden. Dorian never understood Dragomir's obsession with nature, dozens of flowers lined the twisting pathway through the acre of land. Groves of trees followed after them, apples and oranges, even grapes. It was beautiful, he couldn't deny that but why Dragomir took it upon himself to personally oversee their care still eluded Dorian.
 
-He turned to his brother, "If you took a care of women the way you look after your gardening, you'd
+He turned to his brother, "If you took care of women the way you look after your gardening, you'd
 be married with kids by now."
 
-Dragomir smiled, but said nothing. Dorian turned back to the garden and resisted the urge to glance
+Dragomir smiled but said nothing. Dorian turned back to the garden and resisted the urge to glance
 at his watch again.
 
 "Dorian."
 
 "Hmm?"
 
-"Whatever you're looking for will never come to you instantly. Be patient and use wisdom, racing
-after every little ripple will cause you to miss the bigger ripples worth your attention."
+"Whatever you're looking for will never come to you instantly. Be patient and use wisdom, racing after every little ripple will cause you to miss the bigger ripples worth your attention."
 
-Dorian held his brother's gaze for a moment longer before turning back to the two birds playing in
-the water.
+Dorian held his brother's gaze for a moment longer before turning back to the two birds playing in the water.
 
 "The only problem," He muttered, "is that I don't know *what* I'm looking for."
 
-A movement to his right caught his eye. Dorian watched as Samantha Rose stepped out of her car. She
-was on the phone and her gaze met his. She did not smile and he didn't either. Something told him
-that she wasn't what he was looking for either.
+A movement to his right caught his eye. Dorian watched as Samantha Rose stepped out of her car. She was on the phone and her gaze met his. She did not smile and he didn't either. Something told him that she wasn't what he was looking for either.

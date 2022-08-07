@@ -8,10 +8,7 @@ date: 2022-08-01 01:55:55
 tags:
 prev_post: tmf-2
 ---
-Samantha Rose found herself counting to ten, again, as the pompous gentleman before her rattled off
-about his *highly* expensive business ventures. It seemed like him and the other gentleman currently
-occupying his attention were having a dominance battle. She idly sipped her cocktail, and tried to
-find something more interesting.
+Samantha Rose found herself counting to ten, again, as the pompous gentleman rattled off about his *highly* expensive business ventures. It seemed like he and the other gentleman currently occupying his attention were having a dominance battle. She idly sipped her cocktail and tried to find something more interesting.
 <!-- more -->
 "On a scale from one to ten," Dorian whispered in her ear, "how bored are you?"
 
@@ -21,8 +18,7 @@ He chuckled, "That's not on the scale."
 
 "You should've asked me fifteen minutes ago."
 
-Dorian laughed and cleared his throat. "Excuse me, gentlemen, but I think that the women at this
-table are a bit bored by this discussion."
+Dorian laughed and cleared his throat. "Excuse me, gentlemen, but I think that the women at this table are a bit bored by this discussion."
 
 The other two women, wives, smiled and looked at Dorian with "thank you" written all over his faces.
 
@@ -32,48 +28,29 @@ The other two women, wives, smiled and looked at Dorian with "thank you" written
 
 "Agreed Jeffrey."
 
-Jeffrey, who Samantha believed had the last name Morres, turned to her. "Tell me Ms. Rose, have you
-had any fun adventures in America yet?"
+Jeffrey, who Samantha believed had the last name Morres, turned to her. "Tell me Ms. Rose, have you had any fun adventures in America yet?"
 
 "I wouldn't call them 'adventures,'" She replied. "But I have had some wonderful experiences."
 
-"Do share." urged Johnson, whose parent seemed to have mixed up his first name with their last. Who
-named their son Johnson Davids anyway?
+"Do share." urged Johnson, whose parent seemed to have mixed up his first name with their last. Who named their son Johnson Davids anyway?
 
 "Well, before I met Dorian, I spent most of my time walking around New York City and food tasting."
 
 "Food tasting?" interrupted Morres.
 
-"Yes, I like embracing different cultures through their traditions and foods. There are so many
-different people here that come from different walks of life. America is the perfect place to
-experience a different country, or culture, without actually shelling out hundreds of dollars."
+"Yes, I like embracing different cultures through their traditions and foods. There are so many different people here that come from different walks of life. America is the perfect place to experience a different country, or culture, without actually shelling out hundreds of dollars."
 
-"Smart girl." remarked Davids.
+"Smart girl," remarked Davids.
 
-"One day I was looking for this restaurant that a fellow tourist had insisted I try out. She told me,
-in broken English, that the name of the restaurant was 'Pasty Eels,' and that it was a few blocks
-away on some street I didn't quite catch the name of. Now, the name 'Pasty Eels' didn't sound very
-appealing to me, but she was very adamant that I try it, and I was curious, so I figured, why not? I
-walked in the direction she had indicated for a little while, asking those I passed if they knew of
-'Pasty Eels.' As you can imagine, many gave me funny looks, or ignored me all together, as I've
-learned that city people do often."
+"One day I was looking for this restaurant that a fellow tourist had insisted I try out. She told me, in broken English, that the name of the restaurant was 'Pasty Eels,' and that it was a few blocks away on some street I didn't quite catch the name of. Now, the name 'Pasty Eels' didn't sound very appealing to me, but she was very adamant that I try it, and I was curious, so I figured, why not? I walked in the direction she had indicated for a little while, asking those I passed if they knew of 'Pasty Eels.' As you can imagine, many gave me funny looks, or ignored me all together, as I've learned that city people do often."
 
 Chuckles resounded across the table.
 
-"Eventually, I bumped into someone who gave me the time of day and tried to figure out where this
-restaurant with the queer name could be. It took a while for him to realize what restaurant I was
-looking for, but I knew he figured it out when he suddenly burst out laughing. As the saying goes, I
-found myself smiling with him, the name sure was funny. After he was done gasping for air, the
-gentleman, whose name turned out to be Aaron, told me that the name of the restaurant wasn't 'Pasty
-Eels' but rather 'Tasty Meals.'"
+"Eventually, I bumped into someone who gave me the time of day and tried to figure out where this restaurant with the queer name could be. It took a while for him to realize what restaurant I was looking for, but I knew he figured it out when he suddenly burst out laughing. As the saying goes, I found myself smiling with him, the name sure was funny. After he was done gasping for air, the gentleman, whose name turned out to be Aaron, told me that the name of the restaurant wasn't 'Pasty Eels' but rather 'Tasty Meals.'"
 
 "Oh, dear." One the wives laughed.
 
-This brought upon some more laughing by the two of us, and Aaron
-insisted upon personally walking me to one of the best restaurants downtown. Along the way, I
-discovered that he was the nephew of the man who owned the store, a Mr. Peter Garrett. When we
-finally got there, Aaron recounted the story to his uncle, who had an even more boisterous laugh
-than his nephew, and I was treated to the best meal they had, on the house."
+This brought upon some more laughing by the two of us, and Aaron insisted on personally walking me to one of the best restaurants downtown. Along the way, I discovered that he was the nephew of the man who owned the store, Mr. Peter Garrett. When we finally got there, Aaron recounted the story to his uncle, who had an even more boisterous laugh than his nephew, and I was treated to the best meal they had, on the house."
 
 Davids clapped his hands together, "Great story!"
 
@@ -95,8 +72,7 @@ Samantha laughed, and listened as Julia began to recount her first trip to Italy
 
 ---
 
-An hour later, Julia finished another funny, and absolutely embarrassing story that had everyone
-laughing and trying not to choke on the remnants of their meals.
+An hour later, Julia finished another funny, and absolutely embarrassing story that had everyone laughing and trying not to choke on the remnants of their meals.
 
 "I can't believe you fell for that three times." Samantha laughed.
 
@@ -118,7 +94,7 @@ They were forced to quiet down when one of the waiters stood up on a small stage
 
 Samantha watched as Gavriel Arturek walked onstage, and nearly choked on her drink.
 
-Gavriel Arturek looked exactly like she remembered him. His pale, nearly white hair still layed in slight waves across his forehead, and down in a braid past his shoulders. He still reminded her of a cunning elf along with his intelligent, gray eyes that scanned the room, marking faces that he saw.
+Gavriel Arturek looked exactly like she remembered him. His pale, nearly white hair still laid in slight waves across his forehead, and down in a braid past his shoulders. He still reminded her of a cunning elf along with his intelligent, gray eyes that scanned the room, marking faces that he saw.
 
 "I would like to thank you all for coming here today and showing your support. I greatly appreciate it." He began.
 

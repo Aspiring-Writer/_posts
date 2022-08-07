@@ -12,11 +12,11 @@ I couldn't get it out of my head. I'd left the diner five minutes ago and couldn
 <!-- more -->
 I knew that taking this late shift was going to bother me. I hated being out late, especially by myself. It was too easy to get mugged in this town and being out during late hours only made it easier.
 
-I kept walking, trying not to look too scared. Fear translated into easy prey. I knew that well. I tried to look casual while I clutched my purse and pulled out my phone. That feeling was getting worse and that really bothered me. Sure, I could get scared easily, but I didn't stay scared. I was the girl that would face her fears all the time just to get rid of them. I don't like being enslaved to anything, especially fear. If someone could keep you in fear they could control you. I learned that too.
+I kept walking, trying not to look too scared. Fear translated into easy prey. I knew that well. I tried to look casual while I clutched my purse and pulled out my phone. That feeling was getting worse and that bothered me. Sure, I could get scared easily, but I didn't stay scared. I was the girl that would face her fears all the time just to get rid of them. I don't like being enslaved to anything, especially fear. If someone could keep you in fear they could control you. I learned that too.
 
-I scanned my contacts looking for someone I could call. Emily. That one name made me smile. Emily was one of my best friends. She could talk for hours non-stop about random stuff. Sometimes it was really annoying but other times, like this one, it was a blessing. I dialed her number and pressed the phone to my ear. It rang, and rang, and rang. My frustration meter kept rising higher and higher until I reached her voicemail. Of course, the one moment I want to talk to Emily she won’t answer her phone, how ironic. I returned to my contact list and scrolled through it again. For someone who’s super social, you would think I’d have someone else I could call at one in the morning, but no, I have absolutely no one, perfect. I scowled at my phone and shoved it into my pocket.
+I scanned my contacts looking for someone I could call. Emily. That one name made me smile. Emily was one of my best friends. She could talk for hours non-stop about random stuff. Sometimes it was annoying but other times, like this one, it was a blessing. I dialed her number and pressed the phone to my ear. It rang, and rang, and rang. My frustration meter kept rising higher and higher until I reached her voicemail. Of course, the one moment I want to talk to Emily she won’t answer her phone, how ironic. I returned to my contact list and scrolled through it again. For someone who’s super social, you would think I’d have someone else I could call at one in the morning, but no, I have absolutely no one, perfect. I scowled at my phone and shoved it into my pocket.
 
-“Whatever,” I mumbled, “I’m overreacting anyway.” The words were barely past my lips before I glanced up and saw someone staring at me. He was casually leaning against a car fifty feet in front of me with a smirk on his face. I hesitated. He was completely dressed in black with a coat that reminded me of Chuck Norris in the “Walker, Texas Ranger” theme song. His hair was also black, falling to his shoulders in small waves. But it was his eyes that sent chills racing through my body. His eyes were orange, like glow-in-the-dark orange. I stared and his smirk grew wider. I forced myself to think. I was on an empty street, no alleys, no stores to sneak into, and no houses with inhabitants I knew. This was bad, really bad. I contemplated turning around, taking a different road to get home. The only problem was that my house was about two hundred feet past him and he might be here when I came back.
+“Whatever,” I mumbled, “I’m overreacting anyway.” The words were barely past my lips before I glanced up and saw someone staring at me. He was casually leaning against a car fifty feet in front of me with a smirk on his face. I hesitated. He was completely dressed in black with a coat that reminded me of Chuck Norris in the “Walker, Texas Ranger” theme song. His hair was also black, falling to his shoulders in small waves. But it was his eyes that sent chills racing through my body. His eyes were orange, like glow-in-the-dark orange. I stared and his smirk grew wider. I forced myself to think. I was on an empty street, with no alleys, no stores to sneak into, and no houses with inhabitants I knew. This was bad, really bad. I contemplated turning around, taking a different road to get home. The only problem was that my house was about two hundred feet past him and he might be here when I came back.
 
 The guy shifted, positioning his whole body towards me, “Lost, little one?”
 
@@ -30,7 +30,7 @@ I looked at him, “I think I’m on the wrong road.” I murmured before turnin
 
 It actually took me closer to fifteen minutes to reach my street again. I kept my eye out for the Man-Cat but to my relief, he was gone. I was safe. Or so I thought. I still had that feeling of fear clinging to my skin. Ugh.
 
-I lived in a small, two-story house that was a mix of contemporary and oriental. I loved it. It was small and yet spacious with plants decorating the outside and inside. I really liked nature and my home reflected that. I unlocked the door, stepped in, and bolted it back before quickly disarming my security system. I sighed, home sweet home. I allowed myself to breathe and believe I was safe. All I wanted was to take a quick shower and collapse in bed. I walked into my living room and froze. Standing in my living room staring at my bookshelf was him. I gasped and nearly screamed. This couldn’t be real. I’m seeing things. I blinked rapidly but he didn’t disappear. The cloaked cat-man was standing in my living room!
+I lived in a small, two-story house that was a mix of contemporary and oriental. I loved it. It was small yet spacious with plants decorating the outside and inside. I liked nature and my home reflected that. I unlocked the door, stepped in, and bolted it back before quickly disarming my security system. I sighed, home sweet home. I allowed myself to breathe and believe I was safe. All I wanted was to take a quick shower and collapse in bed. I walked into my living room and froze. Standing in my living room staring at my bookshelf was him. I gasped and nearly screamed. This couldn’t be real. I’m seeing things. I blinked rapidly but he didn’t disappear. The cloaked cat-man was standing in my living room!
 
 He chuckled and glanced up at me “You know something Kitten, you’re turning out to be very interesting.”
 
@@ -40,7 +40,7 @@ He slowly smiled at me, “I walked in.”
 
 I couldn’t breathe. He had to be lying. There was no way he just walked into my house. All the doors were locked and my security system was not disarmed.
 
-“That’s impossible.” I whispered.
+“That’s impossible,” I whispered.
 
 He chuckled, “For you, yes.”
 
@@ -54,7 +54,7 @@ He blinked and looked surprised.
 
 He narrowed his eyes, “Are you sure about that?”
 
-“Am I sure? Uh, yeah! You’re a complete stranger who broke into my house! What kind of a dumb question is that?!” I snapped back.
+“Am I sure? Uh, yeah! You’re a stranger who broke into my house! What kind of a dumb question is that?!” I snapped back.
 
 That irritating smirk returned to his face, “As I said, you’re interesting.” He replied, walking closer to me. “I only know of a few who can resist me like you and they’re either dead or smart enough to stay out of my way.”
 
@@ -70,7 +70,7 @@ Oh crap, he was serious. “Get out before I call the police.” I threatened.
 
 “Go ahead and try.”
 
-I did. I really tried to move, but it felt like I was frozen in place. My skin grew cold and my breath turned shallow. It was like I was turning into a frozen statue.
+I did. I tried to move, but it felt like I was frozen in place. My skin grew cold and my breath turned shallow. It was like I was turning into a frozen statue.
 
 “You’re something Vixen, I’m gonna keep you for a long time.”
 
