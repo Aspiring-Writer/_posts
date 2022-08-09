@@ -5,7 +5,7 @@ categories: [books, test my fire]
 tags: [Mystery, Thriller, spy]
 next_post: tmf-1
 ---
-I started writing this and {% post_link kaa %} on the same day. They are very similiar in genre, however, this one is more of a mystery than a thriller.
+I started writing this and {% post_link kaa/index %} on the same day. They are very similiar in genre, however, this one is more of a mystery than a thriller.
 <!-- more -->
 (Her)
 
