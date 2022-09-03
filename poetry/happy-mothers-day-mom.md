@@ -3,6 +3,8 @@ title: "Happy Mother's Day, Mom"
 date: 2020-05-05
 categories: [poetry]
 tags: [holidays]
+prev_post: why-did-god-take-my-daddy-from-me
+next_post: i-hate-routines
 ---
 
 You know that feeling you get when you've became one year older?\

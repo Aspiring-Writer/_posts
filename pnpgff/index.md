@@ -3,7 +3,7 @@ title: Past Nightmares. Present Ghosts. Future Fears.
 date: 2021-01-20
 categories: [books, past nightmares. present ghosts. future fears.]
 tags: [Mystery, Thriller, detective, special needs]
-next_post: pnpgff-1
+next_post: case-i
 ---
 Mysteries are my favorite! I love reading them. I love watching them. I. Love. Mysteries. Period. Which just makes it weird that I have so much trouble writing one! It took months for me to come up with the idea for this one, and it started off as a short story. I got so excited writing it, then I had the idea for the bigger story. I can't wait for this to be finished!
 <!-- more -->

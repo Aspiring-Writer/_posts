@@ -3,6 +3,8 @@ date: 2021-12-04
 title: I Hate Routines
 categories: [poetry]
 tags: [depression]
+prev_post: happy-mothers-day-mom
+next_post: the-endless-loop
 ---
 I hate routines,\
 I hate the never-ending routines that plague my life.\

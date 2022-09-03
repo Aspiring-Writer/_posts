@@ -3,6 +3,8 @@ title: "Prayer is a weapon..."
 date: 2020-05-03
 categories: [poetry]
 tags: [prayer, spiritual weapons]
+prev_post: today
+next_post: why-did-god-take-my-daddy-from-me
 ---
 
 Prayer is a weapon.\

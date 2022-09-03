@@ -5,7 +5,7 @@ categories: [books, court of shadows and ruin]
 tags:
   - Fantasy
   - Romance
-next_post: cosar-0
+next_post: 0
 ---
 Trust. Treachery. Deception.
 

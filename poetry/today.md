@@ -2,6 +2,7 @@
 title: "Today"
 date: 2020-05-02
 categories: [poetry]
+next_post: prayer-is-a-weapon
 ---
 
 Sometimes I wonder what's different 'bout today\

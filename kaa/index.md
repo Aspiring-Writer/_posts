@@ -2,7 +2,7 @@
 title: Kidnapped and Afraid
 date: 2020-06-04
 categories: [books, kidnapped and afraid]
-next_post: kaa-1
+next_post: 1
 ---
 This is a thriller that came to me one day when I was trying to start being serious about my writing. Honestly, I keep getting stuck with this one. Many scenes will just come to me, the difficulty lies in connecting those scenes and adding proper transitions. I do feel like it's an interesting story, one where even I am guessing at the ending.
 <!-- more -->
