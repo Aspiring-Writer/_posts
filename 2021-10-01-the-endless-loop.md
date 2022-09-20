@@ -3,8 +3,6 @@ title: The Endless Loop
 date: 2021-10-01
 categories: [poetry]
 tags: [depression]
-prev_post: i-hate-routines
-next_post: thinking-thinking-thinking
 ---
 I winced as another rock hit my skin.\
 I feel like it left a mark\

@@ -3,7 +3,6 @@ title: Thinking, thinking, thinking...
 date: 2022-05-06
 categories: [poetry]
 tags: [depression]
-prev_post: the-endless-loop
 ---
 Thoughts run around in my head.\
 Thinking, thinking, thinking...

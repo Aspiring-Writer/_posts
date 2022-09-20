@@ -1,10 +1,8 @@
 ---
 title: The Power of Instructions
 date: 2020-11-20
-categories: [devotionals]
+categories: [Devotionals]
 tags: [instructions, patience]
-prev_post: learning-to-wait-be-patient
-next_post: genesis-organizing-filling-marking
 ---
 
 If you’ve ever played video games, you know that the campaign was supposed to be the story mode version of the game. The campaign mode for Need for Speed Underground 2 did… nothing. I’m serious, it just puts you in a wicked awesome car and some character at the bottom says something about meeting her at someplace to give her back her car. I couldn’t figure out what in the world to do other than driving around at 80 mph and exploring the area.<!-- more --> I didn’t have any instructions, only an arrow that kept trying to point me in the right direction. I did follow the arrow, but it led me someplace and I had no idea what I was supposed to do. So, I just ignored the campaign mode and played all the other racing modes. Many years later, I met another guy who had the same game. He let me play it and then he started talking about the campaign mode. Of course, I told him I could never get past the first instruction and he showed me how. The campaign mode was _awesome._ The guy showed me some cool tricks in the game too!
