@@ -10,7 +10,7 @@ Thinking, thinking, thinking...
 In a circle they go,\
 Like a hamster in a wheel.\
 Thinking, thinking, thinking.
-<!--more-->
+<!-- more -->
 Should I stay or should I go?\
 Thinking, thinking, thinking...
 
