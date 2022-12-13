@@ -1,6 +1,6 @@
 ---
 title: My Breath Alone Shall Praise Him
-categories: [Devotionals]
+category: devotionals
 tags: [theology]
 ---
 
